@@ -2,7 +2,7 @@
 - 👀 I’m interested in Fighting demons
 - 🌱 I’m currently learning how to read
 - 💞️ I’m looking to collaborate on beating DMC5
-- 📫 How to reach me: Im ureachable
+- 📫 How to reach me: Im unreachable
 - 😄 Pronouns: Attack helicopter
 - ⚡ Fun fact: BURY THE LIGHT
 
